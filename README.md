@@ -11,3 +11,4 @@ TEST Y PLOTER (para debuggear)
 
 
 
+![20210827_114748](https://user-images.githubusercontent.com/41321821/146995126-18ae4d7b-d692-4c76-b108-32944bfb703b.jpg)
